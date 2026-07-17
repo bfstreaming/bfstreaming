@@ -1,4 +1,4 @@
-# Best free Movie Websites (2026)
+# Best Free Movie Websites (2026)
 
 Welcome to the Best free streaming sites wiki!
 # [🍿Movies and TV Shows](https://yarrlists.net/movies-and-tv-shows)
